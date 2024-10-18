@@ -1,4 +1,4 @@
-Jackson L Nakisher (He/Him)
+Jack L Nakisher (He/Him)
 -------------------------------
 Currently Atending: Chico State 🐯
 
